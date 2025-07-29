@@ -17,8 +17,21 @@ $${\color{black}🕷𓆩open \space \color{darkred}4, \space \color{black}oomfs�
 
 
 
-
-
 $${\color{black}⸸︶꒷꒦︶︶꒷꒦︶︶ \color{darkred}꒷꒦︶︶꒷꒦︶︶꒷꒦‧⁺ }$$
 
-this a wip pls ignore i dont know whayt im doing
+
+
+<p align="center">
+  <img width="460" height="300" src="https://github.com/user-attachments/assets/d66eae35-dbb2-43e1-9e98-3d846ccf591d">
+</p>
+
+
+
+
+
+
+
+
+
+
+
