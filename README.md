@@ -1,11 +1,10 @@
 
-$${\color{pink}୨୧𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡୨୧}$$
+$${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
 
 
 
 
-
-$${\color{pink}؛༊ask \space \color{lightpurple}4' \space \color{pink}inspo۶ৎ}$$
+$${\color{pink}؛༊ask \space \color{lightyellow}4' \space \color{pink}inspo۶ৎ}$$
 
 
 
