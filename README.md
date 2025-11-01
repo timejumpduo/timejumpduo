@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=your-github-username&color=db8894)
 
 $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
 
@@ -25,12 +26,6 @@ $${\color{black}⸸︶꒷꒦︶︶꒷꒦︶︶ \color{darkred}꒷꒦︶︶꒷꒦
 </p>
 
 
-
-
-
-
-
-
-
+ $${\color{pink}<3}$$
 
 
