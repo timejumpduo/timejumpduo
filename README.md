@@ -9,24 +9,11 @@ $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 
 
 
-$${\color{pink}؛༊ask \space \color{lightyellow}4' \space \color{pink}inspo۶ৎ}$$
-
-
-
-
-
-
-$${\color{black}🕷𓆩open \space \color{darkred}4, \space \color{black}oomfs𓆪´ཀ`}$$
-
-
-
-
-$${\color{black}⸸︶꒷꒦︶︶꒷꒦︶︶ \color{darkred}꒷꒦︶︶꒷꒦︶︶꒷꒦‧⁺ }$$
-
 
 
 <p align="center">
-  <img width="460" height="300" src="https://github.com/user-attachments/assets/d66eae35-dbb2-43e1-9e98-3d846ccf591d">
+  <img width="701" height="701" alt="image" src="https://github.com/user-attachments/assets/13fcb1e8-24e8-4b2d-9f9e-093f774b6648" />
+
 </p>
 
 
