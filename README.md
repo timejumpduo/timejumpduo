@@ -1,7 +1,11 @@
-![](https://komarev.com/ghpvc/?username=timejumpduo&color=db8894)
+<p align="center">
+    <img width="70" src="https://komarev.com/ghpvc/?username=timejumpduo&color=f18e8e&style=plastic&label=🐇">
+</p>
+
+
+
 
 $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
-
 
 
 
