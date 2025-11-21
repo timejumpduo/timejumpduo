@@ -20,3 +20,5 @@ $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
  $${\color{pink}<3}$$
 
 
+ $${\color{lightyellow}dont \space \color{pink}put \space \color{lightyellow}my \space \color{pink}skins \space \color{lightyellow}on \space \color{pink}pin \space \color{lightyellow}ty}$$
+
