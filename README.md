@@ -12,7 +12,7 @@ $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 
 
 <p align="center">
-<img width="701" height="701" alt="image" src="https://github.com/user-attachments/assets/d70d3e02-fa5e-428e-b4e0-a3ef48f4b052" />
+<img width="701" height="701" alt="image" src="https://github.com/user-attachments/assets/cc2954fb-12ce-4ad5-983d-571075a0fb5d" />
 
 
 </p>
