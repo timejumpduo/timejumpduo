@@ -6,7 +6,7 @@
   <a href="https://tealiexd.atabook.org">۶۟ৎatabook𓏻⑅</a>
 </p>
 
-$${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
+ $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
 
 
 
@@ -14,11 +14,7 @@ $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 
 <p align="center">
 
-<img height="694" alt="image" src="https://github.com/user-attachments/assets/383a7c1c-3cf6-45cd-9da9-f7b21f5a0bbe" />
-
-
-
-
+<img height="694" alt="image" src="https://github.com/user-attachments/assets/bd8e31dc-9198-49e9-8548-51c8bf2e2105" />
 
 </p>
 
