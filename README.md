@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <a href="https://tealiexd.atabook.org">۶۟ৎatabook𓏻⑅</a>
+ATA DOWN FOR IDK IDK IDK
 </p>
 
  $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
