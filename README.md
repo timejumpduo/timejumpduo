@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-Yo im gonna b on vacation on june 17th to idk a week Ok Bye i wonr be online
+Yo my vacation june 17 I wint be on pinytown past then fora week Ok bye
 </p>
 
  $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
