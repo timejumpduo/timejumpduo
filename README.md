@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-Ata down
+Yo im gonna b on vacation on 17th to idk Ok Bye i wonr be online
 </p>
 
  $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
