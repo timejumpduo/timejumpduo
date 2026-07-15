@@ -1,36 +1,9 @@
 <p align="center">
-    <img width="70" src="https://komarev.com/ghpvc/?username=timejumpduo&color=FFB0C1&style=plastic&label=🤍">
+   <img height="694" alt="image" src="https://github.com/user-attachments/assets/2491d501-7b64-442f-950c-cccbaaeb4699" />
+
+
 </p>
 
 <p align="center">
-Yo my vacation  JULY 17 I wint be on pinytown past then fora week Ok bye
-</p>
-
- $${\color{pink}୨୧ \space \color{lightyellow}𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 \space \color{pink}୨୧}$$
-
-
-
-
-
-<p align="center">
-
-<img height="694" alt="image" src="https://github.com/user-attachments/assets/3b7d9b6a-3df6-4e41-bc6e-132373cbcfbc" />
-
-</p>
-
-
- $${\color{pink}≽(•⩊ •マ≼}$$
-
-
- $${\color{lightyellow}dont \space \color{pink}put \space \color{lightyellow}my \space \color{pink}skins \space \color{lightyellow}on \space \color{pink}pin \space \color{lightyellow}ty}$$
-
-‎ 
-‎
-‎ 
-‎ 
-<p align="center">
-<img width="379" height="369" alt="image" src="https://github.com/user-attachments/assets/e70f1b84-c1bf-4793-b262-b391cc67c70e" />
-
-
-
+ $${\color{#FFD1E2}im \space redoing \space my \space profile \space lelel \space have \space patience}$$
 </p>
