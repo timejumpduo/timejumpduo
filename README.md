@@ -1,16 +1,19 @@
- $${\color{#f9d5ee}redoing \space \color{#c4a5c8}my \space \color{#8c7aa4}profile, \space \color{#525281}patience \space \color{#002f5e}loolololol}$$
+ $${\color{#F1FDAC}copy \space \color{#D6F688}that, \space \color{#B0AC70}copycat!!!}$$
 
- $${\color{#002f5e}⏔⏔⏔ \space \color{#525281}꒰ \space \color{#8c7aa4}᧔ෆ᧓ \space \color{#c4a5c8}꒱ \space \color{#f9d5ee}⏔⏔⏔}$$
+ $${\color{#F1FDAC}⏔⏔⏔ \space \color{#E5FA9C}꒰ \space \color{#D6F688}᧔ෆ᧓ \space \color{#C1CF7B}꒱ \space \color{#B0AC70}⏔⏔⏔}$$
 
 
 
 <p align="center">
-   <img height="694" alt="image" src="https://github.com/user-attachments/assets/2491d501-7b64-442f-950c-cccbaaeb4699" />
+  <img width="600" alt="image" src="https://github.com/user-attachments/assets/b1074b73-6a44-41a2-bc62-e880706e41f7" />  
+
 <p>
+ $${\color{#B0AC70}cr: \space \color{#C8DD7F}ghuoulish \space \color{#DBF88F}on \space \color{#F1FDAC}everything}$$
  
-<img height="300" alt="image" src="https://github.com/user-attachments/assets/9a0495ce-6ecb-4e5f-b7cd-a369b433a64d" />  
-
-
+<p align="center">
+ 
+ <p>
+<img width="200" alt="image" src="https://github.com/user-attachments/assets/b49431ae-aea0-4ace-8f6e-bb2430229a99" /> <img width="230" alt="image" src="https://github.com/user-attachments/assets/01a52401-790f-4564-86f7-1e98cf0629dd" />
 
 
 <p align="center">
