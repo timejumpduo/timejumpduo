@@ -16,10 +16,13 @@
   <a href="https://sharkilz.straw.page/">straw</a> +
   <a href="https://tealiexd.atabook.org/?page=1">ata</a>
 </div>
+
+
+<p align="center">
  
  $${\color{#B0AC70}cr: \space \color{#C8DD7F}ghuoulish \space \color{#DBF88F}on \space \color{#F1FDAC}everything}$$
 
-
+<p>
  
 
   
