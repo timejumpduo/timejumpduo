@@ -1,4 +1,8 @@
- $${\color{#F1FDAC}copy \space \color{#D6F688}that, \space \color{#B0AC70}copycat!!!}$$
+ $${\color{#B0AC70}copy \space \color{#D6F688}that, \space \color{#F1FDAC}copycat!!!}$$
+
+<p align="center">
+<a href="https://visitorbadge.io/status?path=timejumpduo"><img src="https://api.visitorbadge.io/api/visitors?path=timejumpduo&label=%F0%9F%A5%95&labelColor=%23f1fdac&countColor=%23b0ac70&style=plastic" /></a>
+<p>
 
  $${\color{#F1FDAC}⏔⏔⏔ \space \color{#E5FA9C}꒰ \space \color{#D6F688}᧔ෆ᧓ \space \color{#C1CF7B}꒱ \space \color{#B0AC70}⏔⏔⏔}$$
 
