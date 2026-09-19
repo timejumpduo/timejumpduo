@@ -20,6 +20,11 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Racing+Sans+One&size=24&duration=2000&pause=300&color=64D4D6&width=435&height=64&lines=%22Talk+about+low-budget+flights+!+!+!%22;%22No+food+or+movies%2C+I'm+outta+here!%22" alt="Typing SVG" /></a>
 <p>
 
+<div align="center">
+  <a href="https://sharkilz.straw.page/">straw</a> +
+  <a href="https://tealiexd.atabook.org/?page=1">ata</a>
+</div>
+
 
 <img width="50" alt="image" src="https://github.com/user-attachments/assets/4174c133-2b5b-4fce-81e4-c0b59ba35ce3" /> <img width="100" alt="image" src="https://github.com/user-attachments/assets/4174c133-2b5b-4fce-81e4-c0b59ba35ce3" />
 
@@ -35,10 +40,6 @@
 
 
  
-<div align="center">
-  <a href="https://sharkilz.straw.page/">straw</a> +
-  <a href="https://tealiexd.atabook.org/?page=1">ata</a>
-</div>
 
 
  
