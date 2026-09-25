@@ -25,7 +25,7 @@
 
 
 <div align="center">
-  <a href="https://sharkilz.straw.page/">straw</a> +
+  <a href="https://timejumpduo.straw.page">straw</a> +
   <a href="https://tealiexd.atabook.org/?page=1">ata</a>
 </div>
 
