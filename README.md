@@ -6,15 +6,10 @@
 
 
 
+
+
+
  $${\color{#101847}꒰⁐\space \color{#132C74}⁐⁐\space \color{#1E5C95}⁐୨୧⁐\space \color{#33B1D0}⁐⁐\space \color{#64D4D6}⁐꒱}$$
-
-
-
-
-
-<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Racing+Sans+One&size=24&duration=2000&pause=300&color=64D4D6&width=435&height=64&lines=%22Talk+about+low-budget+flights+!+!+!%22;%22No+food+or+movies%2C+I'm+outta+here!%22" alt="Typing SVG" /></a>
-<p>
 
 
 
@@ -29,7 +24,7 @@
   <a href="https://tealiexd.atabook.org/?page=1">ata</a>
 </div>
 
- 
+
 
 
  
