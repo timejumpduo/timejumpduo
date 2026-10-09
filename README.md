@@ -42,6 +42,12 @@
  [pt-awards](https://github.com/pt-awards) [pt-walk-of-fame](https://github.com/pt-walk-of-fame)
 
 </p>
+
+
+
+
+
 <p align="right">
 <img width="120" alt="877b1b7aaa5b8302d02f14d795f0f0de" src="https://github.com/user-attachments/assets/07a5f863-572d-4939-8cb9-5e4fee3b02cd" />
 </p>
+<img width="150" alt="image" src="https://github.com/user-attachments/assets/d7c7526a-eb84-436e-89b0-6023c27a61f9" />
