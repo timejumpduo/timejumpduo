@@ -6,3 +6,7 @@
 <p align="center">
 haha nana im redouing my entire readme AGAIN LOOOOOL ok
 <p>
+  
+<p align="center">
+infp-t so/sx 2w3-5-9 R[L]uAn phleg-sang
+<p>
