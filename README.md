@@ -21,9 +21,14 @@ $\text{\color{#180502}૮꒰ \color{#360C06}•̯́ \color{#8E2517}༝ •̯̀\c
 <p align="center">
 <img width="150" alt="image" src="https://github.com/user-attachments/assets/265ac5cb-baf3-4d9a-95e2-261a358d92a0" /> <img width="140" alt="image" src="https://github.com/user-attachments/assets/c776b157-5d1c-45db-990b-d4781a7d4b57" />
 <p>
-
-‎ ‎ 
-
+  
+<div align="center">
+<details>
+  <summary style="display: inline-block; cursor: pointer;">click4moots</summary>
+  
+   [@sundialduo](https://github.com/sundialduo) [@lampurrt](https://github.com/lampurrt) [@freakyboy501](https://github.com/freakyboy501) [@yourlocalwalmartmeow](https://github.com/yourlocalwalmartmeow) [@evboMC](https://github.com/evboMC) [@CagedPiranha](https://github.com/CagedPiranha) [@spacebombed](https://github.com/spacebombed) [@avenueq](https://github.com/avenueq) [@pawnresearch](https://github.com/pawnresearch) [@deepaffection](https://github.com/deepaffection) [@tirgery123](https://github.com/tirgery123) [@5uguru](https://github.com/5uguru) [@puplexis](https://github.com/puplexis) [@emariyaoi](https://github.com/emariyaoi) and tysm [@pt-awards](https://github.com/pt-awards) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@prettyponycollector](https://github.com/prettyponycollector)
+</details>
+</div>
 ‎ ‎ 
 
 ‎ 
