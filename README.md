@@ -33,5 +33,5 @@ $\text{\color{#180502}૮꒰ \color{#360C06}•̯́ \color{#8E2517}༝ •̯̀\c
 
 ‎ 
 <p align="center">
-<img width="250" height="100" alt="image" src="https://github.com/user-attachments/assets/6aa6f9e9-366b-4083-81cd-c68749d63ef8" />
+<img width="300" height="200" alt="IMG_8977" src="https://github.com/user-attachments/assets/3294950c-294a-4461-96a5-06920919012a" />
 <p>
