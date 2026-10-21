@@ -1,25 +1,26 @@
+
 ‌<p align="center">
-$\text{\color{#180502}૮꒰ \color{#360C06}•̯́ \color{#8E2517}༝ •̯̀\color{#CF5E2E} ˵꒱\color{#E89A6A}ა ?}$
+$\text{\color{#FFFFFF}૮꒰ \color{#D8D8D8}•̯́ \color{#868686}༝ •̯̀\color{#363636} ˵꒱\color{#000000}ა ?}$
 <p>
 
 <p align="center">
-<img width="400" height="290" alt="ezgif-8234a7bed2a4ecb5" src="https://github.com/user-attachments/assets/95fc7f4c-81b8-4889-be00-b08f6c2d301c" />
+<img width="400" height="290" alt="ezgif-6a54eab13e5b2795" src="https://github.com/user-attachments/assets/6e9c5216-d456-4e0e-8b6e-dec3f27d9104" />
 <p>
 
 
   
 <p align="center">
- $${\color{#180502}infp-t  \space \color{#360C06}so/sx  \space \color{#8E2517}2w3-5-9  \space \color{#CF5E2E}R[L]uAn  \space \color{#E89A6A}phleg-sang}$$
+ $${\color{#FFFFFF}infp-t  \space \color{#D8D8D8}so/sx  \space \color{#868686}2w3-5-9  \space \color{#363636}R[L]uAn  \space \color{#000000}phleg-sang}$$
 <p>
 
 
 <div align="center">
-  <a href="https://timejumpduo.straw.page">straw</a> 🔥
+  <a href="https://timejumpduo.straw.page">straw</a> +
   <a href="https://tealiexd.atabook.org/?page=1">ata</a>
 </div>
 
 <p align="center">
-<img width="150" alt="image" src="https://github.com/user-attachments/assets/265ac5cb-baf3-4d9a-95e2-261a358d92a0" /> <img width="140" alt="image" src="https://github.com/user-attachments/assets/c776b157-5d1c-45db-990b-d4781a7d4b57" />
+<img width="140" alt="siodfjmniaesfmnolikasemf" src="https://github.com/user-attachments/assets/8633ab9c-60bc-4ea2-ae70-74fec900fafe" /> <img width="155" alt="starjmkjmikijo" src="https://github.com/user-attachments/assets/e96bb563-38f1-4671-bbbc-4b0c15065797" />
 <p>
   
 <div align="center">
