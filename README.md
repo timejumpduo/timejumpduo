@@ -6,7 +6,7 @@ $\text{\color{#DCDBF9}૮꒰ \color{#A7CCE9}•̯́ \color{#96A6DF}༝ •̯̀\c
 <p align="center">
 
 
-<img width="200" height="150" alt="download_3" src="https://github.com/user-attachments/assets/3dff48bc-6c91-4a7a-af29-5a34f4072a31" />
+<img width="300" height="250" alt="download_3" src="https://github.com/user-attachments/assets/3dff48bc-6c91-4a7a-af29-5a34f4072a31" />
 
 
 <p>
@@ -24,8 +24,8 @@ $\text{\color{#DCDBF9}૮꒰ \color{#A7CCE9}•̯́ \color{#96A6DF}༝ •̯̀\c
 </div>
 
 <p align="center">
-<img width="155" alt="giksjmujmiksfdeasff1" src="https://github.com/user-attachments/assets/b1a703a6-50e2-44e4-a0bf-76f99b4b1765" />
-<img width="140" alt="giksjmujmiksfdeasff" src="https://github.com/user-attachments/assets/2e143ba6-7cff-4459-922c-91f489290105" />
+<img width="150" alt="giksjmujmiksfdeasff1" src="https://github.com/user-attachments/assets/b1a703a6-50e2-44e4-a0bf-76f99b4b1765" />
+<img width="155" alt="giksjmujmiksfdeasff" src="https://github.com/user-attachments/assets/2e143ba6-7cff-4459-922c-91f489290105" />
 <p>
   
 <div align="center">
