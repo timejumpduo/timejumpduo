@@ -35,4 +35,9 @@ $\text{\color{#DCDBF9}૮꒰ \color{#A7CCE9}•̯́ \color{#96A6DF}༝ •̯̀\c
    [@sundialduo](https://github.com/sundialduo) [@lampurrt](https://github.com/lampurrt) [@freakyboy501](https://github.com/freakyboy501) [@yourlocalwalmartmeow](https://github.com/yourlocalwalmartmeow) [@evboMC](https://github.com/evboMC) [@CagedPiranha](https://github.com/CagedPiranha) [@spacebombed](https://github.com/spacebombed) [@avenueq](https://github.com/avenueq) [@pawnresearch](https://github.com/pawnresearch) [@deepaffection](https://github.com/deepaffection) [@tirgery123](https://github.com/tirgery123) [@5uguru](https://github.com/5uguru) [@puplexis](https://github.com/puplexis) [@emariyaoi](https://github.com/emariyaoi) and tysm [@pt-awards](https://github.com/pt-awards) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@prettyponycollector](https://github.com/prettyponycollector)
 </details>
 </div>
-‎ ‎
+
+
+‎<p align="center">
+‎<img width="250" height="200" alt="giksjmujmiksfdeasff2" src="https://github.com/user-attachments/assets/76804a2d-b1ed-4050-b6e2-57155dd9e6c1" />
+
+<p>
