@@ -37,7 +37,3 @@ $\text{\color{#DCDBF9}૮꒰ \color{#A7CCE9}•̯́ \color{#96A6DF}༝ •̯̀\c
 </div>
 
 
-‎<p align="center">
-‎<img width="250" height="200" alt="giksjmujmiksfdeasff2" src="https://github.com/user-attachments/assets/76804a2d-b1ed-4050-b6e2-57155dd9e6c1" />
-
-<p>
